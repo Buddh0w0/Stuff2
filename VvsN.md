@@ -8,4 +8,4 @@ As he starts walking down the all too familiar street, he notices that the sun i
 
 Namami was a girl who was no taller than about 5 feet. She was in the same class as Vergil, and yet looked and sounded a bit too young for her age. Her skin was very fair. She was quite introverted and did not talk to anybody most of the time, preferring the company of her phone over people. She had been in the same school as Vergil for many years and saw him as a good friend, though not preferring to converse with him any more than she did with others; not that other people knew her all that well to begin with. She would often sit in the corner of the class, scrolling away on her phone, paying heed to nobody else. Seeing her conversing with someone else was nothing short of a miracle.
 
-And yet, Vergil was seeing that miracle happen right in front of her eyes. She was sitting in a bench in the middle of the row
+And yet, Vergil was seeing that miracle happen right in front of his eyes. She was sitting in a bench in the middle of the row, talking to a dark-skinned boy sitting on the bench right in front of hers. She was not only talking, but smiling, giggling even
