@@ -27,7 +27,7 @@ Vergil did not go to school today, for the Winter Vacation had begun. "Damn, it 
 "It's me"<br>
 "Allahrakha"<br>
 "So"<br>
-"U coming to the trip"<br>
+"U coming to the trip?"<br>
 
 "When is it?"<br>
 "Who's organising?"<br>
