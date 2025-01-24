@@ -17,36 +17,36 @@ The rest of the day goes by as usual, and so does the rest of the week. Everythi
 Vergil did not go to school today, for the Winter Vacation had begun. "Damn, it gets dark real quick these days", he thinks to himself as he sits in his balcony, watching the last rays of sunlight disappear behind the horizon. He gently brushes his hand over Ichiyoru's back as she sleeps soundly in his lap. In this season, one typically wouldn't sit in their balcony, much less at this hour. However, Vergil has always loved the cold. He has always felt comfortable when it is cold outside, and couldn't tolerate summer no matter what anyone said. Suddenly, he hears a notification sound from his phone. He picks his phone up and notices that he has been added to a group chat - "Winter Trip". "The hell is this?" he thinks to himself. Curious, he takes a look at the members of the group-
 
 "Vergil"<br>
-"Namami"
-"Allahrakha"
+"Namami"<br>
+"Allahrakha"<br>
 "Felix"
 
 "That's it? Four people? Who is organising this? Who's paying? I sure am not gonna pay for this shit." Right then, as if on cue, he receives a message from an unknown number.
 
-"Hi"
-"It's me"
-"Allahrakha"
-"So"
-"U coming to the trip"
+"Hi"<br>
+"It's me"<br>
+"Allahrakha"<br>
+"So"<br>
+"U coming to the trip"<br>
 
-"When is it?"
-"Who's organising?"
-"Who's paying?"
-"And who gave you my no?"
+"When is it?"<br>
+"Who's organising?"<br>
+"Who's paying?"<br>
+"And who gave you my no?"<br>
 
-"Namami did"
-"It's all me"
-"I'm organising and paying for everything"
-"Thought it'd be nice for everyone to get some fresh air"
+"Namami did"<br>
+"It's all me"<br>
+"I'm organising and paying for everything"<br>
+"Thought it'd be nice for everyone to get some fresh air"<br>
 
-"No way you're paying for all that"
-"Didn't know you were that rich"
+"No way you're paying for all that"<br>
+"Didn't know you were that rich"<br>
 
-"It's not a whole lot of money tbh"
-"I've planned out everything"
-"We're going to Salva Hills"
-"And yeah, hope u don't mind me bringing Felix along"
-"Just wanted there to be another person on our grp"
+"It's not a whole lot of money tbh"<br>
+"I've planned out everything"<br>
+"We're going to Salva Hills"<br>
+"And yeah, hope u don't mind me bringing Felix along"<br>
+"Just wanted there to be another person on our grp"<br>
 
 Felix was a fair-skinned, short-statured boy studying in the same class as Vergil. He and Vergil were rivals of sorts. It was as if being better than Vergil was his sole aim in life. As a result, there was always a sort of animosity between him and Vergil. Besides that however, those who knew him rarely had negative opinions about him. He was always sort of egoistic and boastful in nature, but had a kind heart nonetheless.
 
