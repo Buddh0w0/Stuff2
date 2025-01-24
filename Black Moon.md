@@ -50,40 +50,40 @@ Vergil did not go to school today, for the Winter Vacation had begun. "Damn, it 
 
 Felix was a fair-skinned, short-statured boy studying in the same class as Vergil. He and Vergil were rivals of sorts. It was as if being better than Vergil was his sole aim in life. As a result, there was always a sort of animosity between him and Vergil. Besides that however, those who knew him rarely had negative opinions about him. He was always sort of egoistic and boastful in nature, but had a kind heart nonetheless.
 
-"Yeah whatever"
-"But Salva Hills?"
-"At this this time of the year?"
-"No way"
-"That place is probably covered in like 10 feet of snow rn"
+"Yeah whatever"<br>
+"But Salva Hills?"<br>
+"At this this time of the year?"<br>
+"No way"<br>
+"That place is probably covered in like 10 feet of snow rn"<br>
 
-"No I checked"
-"It's fine"
-"Besides"
-"Namami was the one who actually suggested the location"
+"No I checked"<br>
+"It's fine"<br>
+"Besides"<br>
+"Namami was the one who actually suggested the location"<br>
 
-"Nah you're lying"
-"She would never wanna come out of her house"
-"Much less suggest locations for a trip"
+"Nah you're lying"<br>
+"She would never wanna come out of her house"<br>
+"Much less suggest locations for a trip"<br>
 
-"No really"
-"Come on man"
-"U know she never goes out anywhere"
-"If she's finally willing to get out of her house"
-"U should come too"
-"Don't u think?"
+"No really"<br>
+"Come on man"<br>
+"U know she never goes out anywhere"<br>
+"If she's finally willing to get out of her house"<br>
+"U should come too"<br>
+"Don't u think?"<br>
 
-"Idk"
-"I'll think about it ig"
-"When are you guys going anyway?"
+"Idk"<br>
+"I'll think about it ig"<br>
+"When are you guys going anyway?"<br>
 
-"Christmas eve"
+"Christmas eve"<br>
 
-"That's like next week!"
-"Idk man"
-"I'll think about it"
+"That's like next week!"<br>
+"Idk man"<br>
+"I'll think about it"<br>
 
-"U better think real hard"
-"Cuz we're gonna take u along"
-"Whether you like it or not"
-"Sweet dreams"
+"U better think real hard"<br>
+"Cuz we're gonna take u along"<br>
+"Whether you like it or not"<br>
+"Sweet dreams"<br>
 
