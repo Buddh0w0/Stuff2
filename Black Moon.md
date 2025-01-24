@@ -16,7 +16,7 @@ The rest of the day goes by as usual, and so does the rest of the week. Everythi
 
 Vergil did not go to school today, for the Winter Vacation had begun. "Damn, it gets dark real quick these days", he thinks to himself as he sits in his balcony, watching the last rays of sunlight disappear behind the horizon. He gently brushes his hand over Ichiyoru's back as she sleeps soundly in his lap. In this season, one typically wouldn't sit in their balcony, much less at this hour. However, Vergil has always loved the cold. He has always felt comfortable when it is cold outside, and couldn't tolerate summer no matter what anyone said. Suddenly, he hears a notification sound from his phone. He picks his phone up and notices that he has been added to a group chat - "Winter Trip". "The hell is this?" he thinks to himself. Curious, he takes a look at the members of the group-
 
-"Vergil"
+"Vergil"<br>
 "Namami"
 "Allahrakha"
 "Felix"
