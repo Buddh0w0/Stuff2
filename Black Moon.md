@@ -54,7 +54,7 @@ Felix was a fair-skinned, short-statured boy studying in the same class as Vergi
 "But Salva Hills?"<br>
 "At this this time of the year?"<br>
 "No way"<br>
-"That place is probably covered in like 10 feet of snow rn"<br>
+"That place is under like 10 feet of snow rn"<br>
 
 "No I checked"<br>
 "It's fine"<br>
