@@ -14,4 +14,76 @@ Allharakha suddenly stopped talking and turned to look at him. For a second, the
 
 The rest of the day goes by as usual, and so does the rest of the week. Everything else remains relatively unchanged, which is somewhat relieving for him. These last two weeks have been very strange. It is difficult to put into words, but ever since he has had that terrible fever, it is as if he never escaped his fever dreams; as if he has been living inside a fever dream since then. He catches 'bad vibes' much more often, and often feels anxious for no apparent reason. Above all else, he has been having strange dreams. Dreams that feel so real, so vivid that he finds it difficult to distinguish between dream and reality. However, when he wakes up, he remembers next to nothing about what he saw. The only thing he remembers, the one thing that shows up in nearly every dream he has, is snow. Specifically, a snow-covered valley, with a terrible blizzard which almost blinds him, disabling him from seeing much of anything around him. All he feels and hears is the relentlessness of the unstoppable frozen wind blowing past him, forcing him back as he struggles to maintain a foothold. It's always cold, too cold to bear. He raises his hands in front of his face to block the wind, hoping to see even a slight hint of anything in front of him, but it is to no avail. All he ever sees is a blinding white haze. It is intolerable. Every time, no matter how much he tries, he ends up losing his foothold. He falls, but instead of hitting the ground, he continues falling for what seems like forever. And then he wakes up.
 
-Vergil did not go to school today, for the Winter Vacation had begun. "Damn, it gets dark real quick these days", he thinks to himself as he sits in his balcony, watching the last rays of sunlight disappear behind the horizon. He gently brushes his hand over Ichiyoru's back as she sleeps soundly in his lap. In this season, one typically wouldn't sit in their balcony, much less at this hour. However, Vergil has always loved the cold. He has always felt comfortable when it is cold outside, and couldn't tolerate summer no matter what anyone said. Suddenly, he hears a notification sound from his phone. He picks his phone up and notices that he has been added to a group chat - "Winter Trip". "The hell is this?" he thinks to himself. Curious, he takes a look at the members of the group.
+Vergil did not go to school today, for the Winter Vacation had begun. "Damn, it gets dark real quick these days", he thinks to himself as he sits in his balcony, watching the last rays of sunlight disappear behind the horizon. He gently brushes his hand over Ichiyoru's back as she sleeps soundly in his lap. In this season, one typically wouldn't sit in their balcony, much less at this hour. However, Vergil has always loved the cold. He has always felt comfortable when it is cold outside, and couldn't tolerate summer no matter what anyone said. Suddenly, he hears a notification sound from his phone. He picks his phone up and notices that he has been added to a group chat - "Winter Trip". "The hell is this?" he thinks to himself. Curious, he takes a look at the members of the group-
+
+"Vergil"
+"Namami"
+"Allahrakha"
+"Felix"
+
+"That's it? Four people? Who is organising this? Who's paying? I sure am not gonna pay for this shit." Right then, as if on cue, he receives a message from an unknown number.
+
+"Hi"
+"It's me"
+"Allahrakha"
+"So"
+"U coming to the trip"
+
+"When is it?"
+"Who's organising?"
+"Who's paying?"
+"And who gave you my no?"
+
+"Namami did"
+"It's all me"
+"I'm organising and paying for everything"
+"Thought it'd be nice for everyone to get some fresh air"
+
+"No way you're paying for all that"
+"Didn't know you were that rich"
+
+"It's not a whole lot of money tbh"
+"I've planned out everything"
+"We're going to Salva Hills"
+"And yeah, hope u don't mind me bringing Felix along"
+"Just wanted there to be another person on our grp"
+
+Felix was a fair-skinned, short-statured boy studying in the same class as Vergil. He and Vergil were rivals of sorts. It was as if being better than Vergil was his sole aim in life. As a result, there was always a sort of animosity between him and Vergil. Besides that however, those who knew him rarely had negative opinions about him. He was always sort of egoistic and boastful in nature, but had a kind heart nonetheless.
+
+"Yeah whatever"
+"But Salva Hills?"
+"At this this time of the year?"
+"No way"
+"That place is probably covered in like 10 feet of snow rn"
+
+"No I checked"
+"It's fine"
+"Besides"
+"Namami was the one who actually suggested the location"
+
+"Nah you're lying"
+"She would never wanna come out of her house"
+"Much less suggest locations for a trip"
+
+"No really"
+"Come on man"
+"U know she never goes out anywhere"
+"If she's finally willing to get out of her house"
+"U should come too"
+"Don't u think?"
+
+"Idk"
+"I'll think about it ig"
+"When are you guys going anyway?"
+
+"Christmas eve"
+
+"That's like next week!"
+"Idk man"
+"I'll think about it"
+
+"U better think real hard"
+"Cuz we're gonna take u along"
+"Whether you like it or not"
+"Sweet dreams"
+
