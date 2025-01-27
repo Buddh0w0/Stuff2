@@ -6,7 +6,8 @@ He opened his closet, eyeing the old hiking backpack buried under winter coats. 
 
 Ichiyoru mewed, her golden eyes reflecting the dim balcony light. Vergil scooped her up, pressing his forehead to hers. "Stay out of trouble," he murmured. The cat blinked slowly, as if in warning.
 
-*Chapter 5: The Road to Salva Hills*
+**Chapter 5: The Road to Salva Hills**
+
 Christmas Eve dawned brittle and gray. Vergil stood at the bus stop, hoodie pulled tight against the wind. Allahrakha’s van rolled up, its windows fogged with condensation. Inside, Namami sat hunched in the backseat, her face lit by her phone’s glow. Felix lounged beside her, smirking.
 
 "Took you long enough," Felix said, tossing Vergil a thermos. "Hot chocolate. Wouldn’t want you freezing before we get there."
@@ -15,7 +16,8 @@ Vergil ignored him, sliding into the passenger seat. Allahrakha grinned, his tee
 
 The drive twisted through skeletal forests, the sky darkening prematurely. Vergil’s fingers brushed Dadi’s phone in his pocket. It felt… warmer.
 
-Chapter 6: The First Night
+**Chapter 6: The First Night**
+
 Salva Hills was a ghost town swallowed by snowdrifts. The group rented a cabin on the outskirts, its wooden beams creaking under the weight of winter. Vergil’s nightmares seeped into reality: the same blinding blizzard, the same howling wind.
 
 At midnight, Namami vanished.
@@ -31,7 +33,8 @@ Vergil’s phone buzzed. A notification from Dadi’s number—impossible, it ha
 12:07 AM
 Unknown Sender: Turn back.
 
-Chapter 7: The Black Moon Rises
+**Chapter 7: The Black Moon Rises**
+
 The storm hit at dawn. Snow piled against the cabin doors, sealing them inside. Felix paced, ranting about "wasted time," while Allahrakha sketched symbols on the frost-edged windows. Namami sat motionless, her phone dark for the first time.
 
 Vergil retreated to the attic, Dadi’s phone glowing faintly in his palm. Static hissed from its speaker, resolving into a voice—his voice, warped and desperate: "The blade… find the blade."
