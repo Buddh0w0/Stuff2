@@ -1,4 +1,4 @@
-*Chapter 4: The Unseen Compulsion*
+**Chapter 4: The Unseen Compulsion**
 
 Vergil stared at his phone, the words "Sweet dreams" lingering like a threat. He tossed the device onto his bed, where Ichiyoru pawed at it curiously. "Salva Hills…" The name alone made his skin prickle. But Namami’s involvement gnawed at him. Since when did she agree to anything beyond her phone screen?
 
