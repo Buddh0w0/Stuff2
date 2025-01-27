@@ -1,124 +1,203 @@
-**Chapter 4: The Unseen Compulsion**
+**Chapter 4: Shadows in Sunlight**
 
-Vergil stared at his phone, the words "Sweet dreams" lingering like a threat. He tossed the device onto his bed, where Ichiyoru pawed at it curiously. "Salva Hills…" The name alone made his skin prickle. But Namami’s involvement gnawed at him. Since when did she agree to anything beyond her phone screen?
+Vergil hesitated outside the school gates, watching Namami through the frost-tinted window. She sat alone, her phone dark for once, staring at the wall with an intensity that made her pupils flicker—a flash of silver, there and gone. Allahrakha slid up beside him, hands in his pockets.
 
-He opened his closet, eyeing the old hiking backpack buried under winter coats. Dadi’s phone, still lifeless, sat on his desk. On impulse, he slipped it into the bag. Maybe the cold will jolt it awake, he thought bitterly.
+“She’s been… off, hasn’t she?” he said, voice uncharacteristically soft. “Ever since I tried to invite her to study group. She nearly threw a chair at me.”
 
-Ichiyoru mewed, her golden eyes reflecting the dim balcony light. Vergil scooped her up, pressing his forehead to hers. "Stay out of trouble," he murmured. The cat blinked slowly, as if in warning.
+Vergil frowned. “Since when do you care?”
 
-**Chapter 5: The Road to Salva Hills**
+Allahrakha shrugged. “Just saying. Maybe that fever messed with more than your sleep.”
 
-Christmas Eve dawned brittle and gray. Vergil stood at the bus stop, hoodie pulled tight against the wind. Allahrakha’s van rolled up, its windows fogged with condensation. Inside, Namami sat hunched in the backseat, her face lit by her phone’s glow. Felix lounged beside her, smirking.
+That night, Vergil dreamt of the blizzard again. This time, Namami stood at the valley’s edge, her small frame haloed by the storm. She turned, eyes bleeding silver. “You shouldn’t have come back.”
 
-"Took you long enough," Felix said, tossing Vergil a thermos. "Hot chocolate. Wouldn’t want you freezing before we get there."
+**Chapter 5: The Uninvited Guest**
 
-Vergil ignored him, sliding into the passenger seat. Allahrakha grinned, his teeth too white. "Glad you made it, bro. You’re gonna love this."
+The trip to Salva Hills began with tension. Namami arrived first, her usual oversized hoodie replaced by a sleek black coat. She didn’t speak, didn’t glance at her phone. When Felix joked about her “makeover,” she slammed her fist into the van’s window, cracking the glass.
 
-The drive twisted through skeletal forests, the sky darkening prematurely. Vergil’s fingers brushed Dadi’s phone in his pocket. It felt… warmer.
+“Whoa, easy!” Allahrakha raised his hands, stepping between them. “We’re all friends here, right?”
 
-**Chapter 6: The First Night**
+Namami’s gaze snapped to Vergil. “He isn’t your friend,” she hissed.
 
-Salva Hills was a ghost town swallowed by snowdrifts. The group rented a cabin on the outskirts, its wooden beams creaking under the weight of winter. Vergil’s nightmares seeped into reality: the same blinding blizzard, the same howling wind.
+The cabin was worse. Namami claimed the attic, dragging her luggage—a heavy, ancient-looking trunk—up the stairs. That night, Vergil found her in the kitchen, carving symbols into the table with a steak knife.
 
-At midnight, Namami vanished.
+“What are you doing?” he demanded.
 
-They found her standing barefoot in the snow, halfway up the hill behind the cabin. Her breath fogged the air as she murmured, "He’s waiting."
+She smiled. “Preparing.”
 
-"Who’s waiting?" Felix demanded, but Allahrakha silenced him with a raised hand.
+**Chapter 6: The First Blood**
 
-"Let her go," he said, his voice unnervingly calm. "She’s just… connecting."
+They awoke to screams. Felix’s arm was slashed, blood streaking the hallway. He pointed a shaking finger at Namami’s door. “She—she came at me! Said I ‘wasn’t part of the ritual!’”
 
-Vergil’s phone buzzed. A notification from Dadi’s number—impossible, it hadn’t worked in years. The screen flickered:
+Allahrakha bandaged the wound, his hands steady. “We need to leave. Now.”
 
-12:07 AM
-Unknown Sender: Turn back.
+But the roads were buried. Snow piled against the doors like a tomb.
 
-**Chapter 7: The Black Moon Rises**
+Namami descended the stairs at dawn, her hair braided with black cords that dripped ice. “Too late,” she said. “The Moon is rising.”
 
-The storm hit at dawn. Snow piled against the cabin doors, sealing them inside. Felix paced, ranting about "wasted time," while Allahrakha sketched symbols on the frost-edged windows. Namami sat motionless, her phone dark for the first time.
+Vergil’s phone buzzed. A message from Dadi’s number:
 
-Vergil retreated to the attic, Dadi’s phone glowing faintly in his palm. Static hissed from its speaker, resolving into a voice—his voice, warped and desperate: "The blade… find the blade."
+Unknown Sender: She’s not Namami.
 
-Below, a scream tore through the silence.
+**Chapter 7: The Silver-Eyed Puppet**
 
-Felix stood in the living room, pointing at the fireplace. The flames burned black, and within them, a silhouette emerged—tall, clawed, its eyes twin voids. Allahrakha laughed, low and guttural. "Right on time."
+They cornered her in the attic. The trunk lay open, filled with bone-white candles and a dagger etched with runes. Namami knelt, chanting as the storm outside howled her name.
 
-Namami rose, her pupils swallowed by silver. "The Black Moon hungers," she intoned. "He comes for the dreamer."
+“Stop this!” Allahrakha shouted. “Whatever they promised you—it’s a lie!”
 
-Vergil’s backpack vibrated. He unzipped it, and the old phone’s screen blazed to life, projecting a map into the air—a pulsing red dot deep in the valley. The same valley from his dreams.
+She laughed, the sound jagged. “They didn’t promise anything. I called them.”
 
-Outside, the blizzard parted. A single path cut through the snow, leading into the heart of the storm.
+The windows shattered. Cold poured in, coalescing into a figure with claws of frost. Namami rose, silver eyes blazing. “The Black Moon demands a sacrifice. One of you will do.”
 
-**Chapter 8: The Path Through the Storm**
+Allahrakha stepped forward, voice pleading. “Namami, please—this isn’t you!”
 
-The cabin door burst open, snow swirling into the room like ash. Vergil gripped Dadi’s phone, its holographic map trembling in the air. The red dot pulsed rhythmically, as if echoing a heartbeat.
+Vergil lunged for the dagger, but Namami was faster. She slashed his palm, smearing blood on the entity’s claw. “Him,” she said. “The Dreamer dies first.”
 
-“We’re not staying here,” Vergil muttered, shoving past Allahrakha.
+**Chapter 8: The Innocent Bystander**
 
-Felix grabbed his arm. “Are you insane? That thing out there—”
+Chaos erupted. Felix tackled Namami, pinning her as Allahrakha dragged Vergil back. The entity lunged, but Allahrakha threw himself in its path, taking the brunt of the blow. He crumpled, blood pooling beneath him.
 
-“Is here because of him,” Vergil snapped, jerking his chin toward Allahrakha. The transfer student leaned against the wall, his smirk sharpening.
+“Run!” he gasped. “Get to the valley—the shrine—”
 
-“You’re smarter than you look,” Allahrakha said. “But the Moon’s already rising. You’ll need me to survive the valley.”
+Namami writhed free, snarling. “You pathetic fool! You think kindness saves anyone?” She raised the dagger, but Vergil tackled her, sending it skidding across the floor.
 
-Namami stood in the doorway, her silvered eyes fixed on the path. “He waits,” she whispered. “The Keeper of the Blade.”
+The entity seized Namami instead, its claws piercing her shoulders. She screamed—a human sound, raw and terrified—before the storm swallowed her whole.
 
-**Chapter 9: The Valley of Echoes**
+**Chapter 9: The Bitter Truth**
 
-The group trudged through the storm, snow crunching beneath their boots. The path narrowed, walls of ice rising on either side. Vergil’s breath came in ragged gasps, each exhale crystallizing into faint whispers. His whispers—fragments of his nightmares.
+In the shrine, Vergil found the blade. Its hilt fit his grip like a memory. Dadi’s phone buzzed one last time, a voice breaking through static:
 
-“Cold… too cold…”
+“The entity needed a vessel. It chose her… but the boy fought it.”
 
-“Find it… before He does…”
+Allahrakha staggered in, clutching his side. “Namami… she let it in. Weeks ago. I tried to stop her, but—”
 
-Felix stumbled, cursing. “Did you hear that? It’s like… voices in the wind.”
+Felix glared. “Why didn’t you say something?!”
 
-Allahrakha chuckled. “The valley remembers everything. Even your secrets, Felix.”
+“Would you have believed me?”
 
-The air thickened. Shadows flitted at the edges of their vision—silhouettes of figures long buried in the snow.
+Vergil tightened his grip on the blade. Outside, the Black Moon hung low, its light staining the snow. Namami’s silver eyes flickered in the shadows, her laughter echoing.
 
-**Chapter 10: The Shrine of the Blade**
+**Chapter 10: The Glowing Blade**
 
-The path ended at a cavernous ice shrine, its entrance carved with runes that glowed faintly blue. Inside, a pedestal stood at the center, holding a sword wreathed in black flame. The blade from Vergil’s dreams.
+The shrine’s walls trembled as Vergil gripped the sword, its edge humming with spectral energy. Outside, the Black Moon’s light pierced the blizzard, staining the sky in bruise-like hues of blue and black. Namami stood at the valley’s heart, her silhouette warped by the storm. Silver veins pulsed beneath her skin, and her once-fair face was streaked with dried blood.
 
-Namami fell to her knees, blood trickling from her nose. “He’s here.”
+“You’re too late, Vergil,” she said, her voice layered with a guttural growl. “The Moon is here. He is here.”
 
-The temperature plummeted. The storm outside died abruptly, replaced by a deafening silence. Then—a crack, as the ice behind the pedestal split open.
+The entity’s presence thickened the air, but Vergil stepped forward, the blade’s glow intensifying. “I’m taking you home, Namami.”
 
-A towering figure emerged, its body a shifting mass of frost and shadow. Hollow eyes locked onto Vergil.
+She laughed—a sound that cracked into something inhuman. “Home? I am home.”
 
-“Dreamer,” it intoned, voice like glaciers grinding. “You carry the blood of the Gatekeeper.”
+Then it began.
 
-Allahrakha stepped forward, his charm dissolving into fervor. “Give me the blade, Vergil. It’s the only way to control Him!”
+**Chapter 11: The Nemesis Revealed**
 
-Vergil’s hand hovered over the sword. The flames didn’t burn—they hummed, resonating with the phone in his pocket. Dadi’s voice suddenly crackled from the device, clear and urgent: “Take it. It’s yours by right.”
+On the tip of the glowing blade, a drop of blood sizzles and burns.
 
-**Chapter 11: The Black Moon’s Gaze**
+Vergil’s first strike grazed her arm. Namami’s blood hissed as it met the sword’s edge, evaporating into black smoke. She staggered back, her silver eyes widening in rage.
 
-Vergil seized the blade. Black fire erupted, engulfing the shrine. The entity roared, lurching forward, but the flames formed a barrier.
+The blue and black clouds swirl in an ominous spiral.
 
-“You think a toy sword can stop me?” Allahrakha snarled, his skin cracking to reveal veins of ice.
+The sky churned, the Black Moon’s gravity warping the storm into a vortex. Ice and debris lifted around them, forming a cage of howling wind.
 
-“No,” Vergil said, raising the blade. “But this can.”
+The wind from the heavens blows the dust beneath his feet, as Vergil raises his sword towards his nemesis.
 
-The phone’s screen shattered, releasing a surge of light. The holographic map reconfigured into a glowing sigil—the same mark on Vergil’s wrist, hidden beneath his sleeve.
+He lunged again, but Namami parried with a blade of her own—a jagged shard of ice summoned from the storm. Their weapons clashed, sparks of blue and black light erupting with each collision.
 
-The entity froze. “The Gatekeeper’s heir…”
+She expresses an amused grin, as blood trickles down her visage.
 
-Outside, the Black Moon breached the clouds, its dark light casting the valley into monochrome. The sigil on Vergil’s wrist burned gold, and the blade’s flames turned white-hot.
+“You’re weak,” she spat, her grin sharp and mocking. Blood seeped from a cut on her cheekbone, but she didn’t flinch. “You still think this is a rescue? I chose this power. I chose Him!”
 
-“Stay back!” Felix shouted, but Vergil was already moving.
+**Chapter 12: The Cost of Truth**
 
-The blade arced through the air—and struck nothing. The entity dissolved into mist, its final scream echoing: “This is not over.”
+Allahrakha’s voice cut through the chaos. “The blade, Vergil! Strike the Moon’s reflection!”
 
-**Chapter 12: Aftermath**
+Vergil glanced at the ice beneath his feet. The Black Moon’s inverted image shimmered in the frozen ground—a perfect, dark mirror.
 
-The valley fell still. The storm vanished, leaving only a pristine blanket of snow. Namami collapsed, her eyes human again but vacant. Allahrakha was gone, his footprints ending abruptly at the shrine’s entrance.
+Namami roared, charging with her icy weapon. Vergil sidestepped, driving his sword into the reflection. The ground shattered.
 
-Felix stared at Vergil. “What the hell are you?”
+Light erupted—a searing white beam that tore through the storm. The entity’s scream echoed as the Black Moon fractured, its shards dissolving into ash. Namami collapsed, the silver draining from her eyes.
 
-Vergil ignored him, sheathing the blade. It shrunk into a pendant, cold against his chest. Dadi’s phone, now inert, lay in pieces at his feet.
+When the light faded, the valley was silent. The blizzard had stopped.
 
-Gatekeeper’s heir. The words clawed at him. He’d inherited more than a sword—he’d inherited a war.
+**Chapter 13: After the Storm**
 
-As they retreated from the valley, Vergil glanced back. High above, the Black Moon lingered, an unblinking eye.
+Namami lay unconscious but breathing, her skin pale but human. Allahrakha knelt beside her, his hands trembling. “It’s over. The bond is broken.”
+
+Vergil stared at the sword, now dull and lifeless. “What was she?”
+
+“A vessel,” Allahrakha murmured. “The entity preyed on her loneliness. Made her believe she was in control… until she wasn’t.”
+
+Felix limped over, clutching his injured arm. “And you knew this whole time?”
+
+“I tried to stop her. But the Black Moon… it warps minds. Even mine.”
+
+Vergil sheathed the blade, its weight a new burden. The first paragraph of his story—the clash under the spiraling sky—had been a premonition. A warning.
+
+And he’d survived it.
+
+But as they trudged back to the cabin, Vergil glanced at the horizon. The Moon was gone, but the sky still held a faint stain—a shadow where it had been.
+
+**Chapter 14: The Weight of Shadows**
+
+The return to school felt like stepping into a sepia photograph—dull and lifeless. Rumors about the "accident" at Salva Hills buzzed through the halls, painting Vergil as either a hero or a lunatic. Namami’s desk sat empty, her absence a void even her classmates avoided acknowledging.
+
+Ichiyoru greeted Vergil at his apartment door, her fur bristling as she stared at the stain in the sky—a smudge of ink on glass, visible only to those who knew to look. Vergil traced the blade pendant at his chest, now cold and dormant.
+
+Dadi’s phone, cracked but functional, buzzed on his nightstand. A garbled voice message played: "...the Gatekeeper’s blood... binds the seal..."
+
+**Chapter 15: The Cryptic Heirloom**
+
+Allahrakha cornered Vergil after class, his usual charm replaced by a grim urgency. "You need to see this."
+
+In his backpack, he carried an ancient ledger filled with symbols matching those on Vergil’s blade. "My great-grandfather wrote this. He called the Black Moon ‘The Eye That Hungers.’ Your family didn’t just guard the blade—they fed it."
+
+Vergil recoiled. "Fed it what?"
+
+"Blood," Allahrakha said flatly. "The Gatekeeper’s line seals the Moon by sacrifice. Your dreams? They’re not warnings. They’re memories."
+
+**Chapter 16: Fractured Reflections**
+
+Namami awoke in a hospital bed, her wrists bandaged where the entity’s claws had pierced. Vergil found her sketching the valley in frantic strokes, the paper torn by her pencil.
+
+"Its voice... it’s still there," she whispered. "Like static. It says the Moon isn’t dead—it’s waiting."
+
+She pressed a crumpled note into his hand—coordinates scrawled in ice-blue ink. "Where it began. Where it’ll end."
+
+The location matched a symbol in Dadi’s phone: Black Moon Shrine, 1912.
+
+**Chapter 17: The Stain Spreads**
+
+Felix hacked into the school’s archives, unearthing news clippings about a blizzard that buried Salva Hills a century ago. "Every 108 years," he muttered. "The Moon returns. And guess what year it is now?"
+
+Outside, the stain in the sky pulsed, stretching tendrils toward the town. Birds fell silent. Streetlights flickered. Ichiyoru yowled, her eyes reflecting twin crescents.
+
+Vergil’s nightmares returned—not of snow, but of a cathedral-like structure beneath the valley, its altars stained with old blood.
+
+**Chapter 18: The Gathering Storm**
+
+The group reconvened in Vergil’s apartment, tensions taut.
+
+"You expect us to go back there?" Felix snapped.
+
+"Namami’s coordinates lead underground," Vergil said, projecting Dadi’s map. "The original shrine. If the Moon feeds on sacrifice, we destroy its source."
+
+Allahrakha hesitated. "My family’s ledger mentions a ‘Keybearer’—someone who can sever the bond. But it requires a price."
+
+"What price?"
+
+"Something alive," he said, avoiding Vergil’s gaze.
+
+Ichiyoru leapt onto the table, her tail lashing. The pendant at Vergil’s neck flared—a warning.
+
+**Chapter 19: The Edge of Truth**
+
+The descent into the valley’s underbelly was a crawl through ice and bone. The shrine’s true form loomed—a cathedral carved from glacial rock, its walls etched with faces frozen in agony.
+
+At its center stood an altar, the blade’s twin embedded in stone. Vergil reached for it, but the pendant seared his skin. Dadi’s voice echoed: "Blood binds. Blood breaks."
+
+Namami staggered, clutching her temples. "It’s here. It’s awake."
+
+The air split. The entity materialized, its form more solid, more human—a mirror of Vergil’s face twisted into a sneer.
+
+"Welcome home, Heir," it hissed. "You’ve brought my offering."
+
+Allahrakha stepped forward, a dagger glinting in his hand.
