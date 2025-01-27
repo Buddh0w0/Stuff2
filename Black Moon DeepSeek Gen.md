@@ -201,3 +201,217 @@ The air split. The entity materialized, its form more solid, more human—a mirr
 "Welcome home, Heir," it hissed. "You’ve brought my offering."
 
 Allahrakha stepped forward, a dagger glinting in his hand.
+
+**Chapter 20: The First Gatekeeper’s Gambit**
+
+The entity’s form flickered between Vergil, Namami, and Allahrakha, its laughter echoing like cracking ice. "You think sacrifice is your burden?" it hissed, talons elongating into jagged blades. "I invented sacrifice."
+
+Allahrakha lunged, not at Vergil, but at the altar. His dagger struck the stone, splintering the ice around the embedded sword. "The Keybearer severs bonds!" he shouted. "But it needs your blood, Vergil—the Gatekeeper’s heir!"
+
+Namami staggered forward, silver veins receding from her eyes. "Don’t... trust it," she gasped. "The Moon lies. It always lies."
+
+The entity snarled, lashing at Allahrakha. Vergil intercepted, their blades colliding in a shower of sparks.
+
+**Chapter 21: The Dream Made Real**
+
+On the tip of the glowing blade, a drop of blood sizzles and burns.
+
+Vergil’s sword grazed the entity’s arm, black ichor hissing as it met the steel. The creature recoiled, its mimicry faltering to reveal a skeletal visage draped in shadow.
+
+The blue and black clouds swirl in an ominous spiral.
+
+Above them, the Black Moon fractured, its shards piercing the shrine’s ceiling. Light and darkness warped into a maelstrom, tearing the cathedral apart.
+
+The wind from the heavens blows the dust beneath his feet, as Vergil raises his sword towards his nemesis.
+
+"End this," Vergil demanded, the blade humming with ancestral rage.
+
+She expresses an amused grin, as blood trickles down her visage.
+
+The entity shifted one last time—into Namami’s face, her silver eyes brimming with false tears. "Strike me down," it whispered in her voice. "And you kill her too."
+
+Vergil froze.
+
+Allahrakha slammed his dagger into the altar. "NOW, VERGIL!"
+
+**Chapter 22: Blood and Ashes**
+
+The sword plunged into the entity’s chest. Not-Namami screamed, her form dissolving into smoke. The real Namami collapsed as the silver drained from her eyes, her body limp but alive.
+
+The shrine imploded. Vergil grabbed Namami, dragging her toward Allahrakha, who stood amid a sigil of his own blood. "The gate closes here!" he yelled. "Go!"
+
+They barely escaped as the cathedral collapsed, sealing the entity—and Allahrakha—beneath tons of ice.
+
+**Chapter 23: The Cost of Dawn**
+
+The surface was eerily calm. The stain in the sky had vanished, replaced by winter’s first true sunrise. Namami stirred in Vergil’s arms, her voice a fragile whisper. "Where’s... Allahrakha?"
+
+Vergil didn’t answer. Clutched in his hand was the ledger’s final page, torn and bloodstained:
+
+"The Keybearer’s sacrifice is eternal. To seal the Moon, he becomes its prisoner."
+
+Felix found them hours later. "He knew," Vergil said numbly. "Allahrakha knew he’d be trapped there."
+
+Namami touched the fading scar on her shoulder. "No. The entity’s still in me. A piece of it, at least. Allahrakha bought us time—not freedom."
+
+**Chapter 24: The Unbroken Cycle**
+
+Weeks passed. School resumed, but Vergil’s scars ran deeper than frostbite. The blade pendant grew heavier, its whispers louder.
+
+One night, Ichiyoru pawed at Dadi’s phone—now repaired, somehow. A notification glowed:
+
+Unknown Sender: 108 years. 108 hours. The Eye stirs.
+
+Vergil opened his window. The stain had returned, faint but growing.
+
+In the valley’s ruins, a shadow stirred. Allahrakha’s voice echoed through the ice, warped and dual-toned: "You’ll need me again, Dreamer."
+
+**Chapter 25: The Whispering Pendant**
+
+The blade pendant grew colder, its weight a constant reminder of the debt unpaid. Vergil traced the sigil etched into its surface—a serpent coiled around a crescent moon. Dadi’s phone, now inexplicably restored, buzzed with fragmented texts from blocked numbers:
+
+Unknown: The Gatekeeper’s heir cannot hide.
+Unknown: It wants the girl.
+
+Namami avoided mirrors. Her reflection flickered sometimes, silver pupils flashing like fractured glass. She spent nights sketching the same symbol: a moon devouring a sun, over and over, until the paper tore.
+
+“It’s getting louder,” she admitted one evening, her voice brittle. “The static… it’s not just noise anymore. It’s words.”
+
+Vergil didn’t ask what they said. He already knew.
+
+**Chapter 26: The Forgotten Archive**
+
+Felix discovered a reference to the Gatekeeper in a digitized occult archive—a grainy photograph of a stone tablet, dated 1912. The inscription read:
+
+“The First Gatekeeper betrayed the Moon, binding its hunger with his blood. For this sin, his line shall bear the blade until the seal breaks.”
+
+The location? A crumbling chapel on the outskirts of town, long abandoned.
+
+They found it buried under ivy and rot. Inside, the walls were painted with murals of a man—Vergil’s spitting image—raising a sword to a blackened sun. Beneath the altar lay a rusted box containing a journal, its pages filled with Dadi’s handwriting.
+
+“The Moon is not an enemy. It is a prison. And we are its jailers.”
+
+**Chapter 27: The Hollow Prophet**
+
+Allahrakha’s voice returned in dreams.
+
+“You think you won?” he whispered, his form half-shadow, half-ice. “The Moon doesn’t die. It hibernates. And it’s hungry.*”
+
+Vergil woke to find his window frosted over, the glass etched with a single word: SOON.
+
+Namami’s sketches grew darker. One depicted Vergil kneeling before a throne of bones, the pendant shattered at his feet. Another showed Felix’s face, eyes gouged out, replaced by twin moons.
+
+“It’s showing me the future,” she said flatly. “Or a future. I don’t know which.”
+
+**Chapter 28: The Fractured Pact**
+
+The chapel’s journal revealed a truth: the original Gatekeeper had not acted alone. He’d conspired with a witch—a woman named Aisling, her name scrubbed from history. Together, they’d split the Moon’s essence into three relics: the blade, the pendant, and a crown lost to time.
+
+“A crown?” Felix muttered. “Like, a tiara?”
+
+“A conduit,” Vergil corrected. “Something that channels the Moon’s power. If we find it—”
+
+“—we might control the entity for good,” Namami finished, her voice tinged with desperation. “Or destroy it.”
+
+But the journal’s final entry warned: “The crown cannot be wielded by mortal hands. It demands a soul already fractured.”
+
+Namami’s fingers brushed her silver-scarred shoulder.
+
+**Chapter 29: The First Sacrifice**
+
+They found the crown in the chapel’s catacombs, nestled in a nest of roots. It was cold iron twisted into thorned vines, its center cradling a gem blacker than void.
+
+Namami reached for it first.
+
+“Don’t!” Vergil grabbed her wrist.
+
+“It has to be me,” she said, pulling free. “The entity’s already in my head. If anyone’s ‘fractured,’ it’s—”
+
+The crown hissed as it touched her skin. Her back arched, silver light erupting from her eyes, her mouth, her scars. When she spoke, it was with the entity’s voice:
+
+“Thank you, little jailer. You’ve opened the door.”
+
+**Chapter 30: The Eclipse**
+
+The stain in the sky split open. The Black Moon descended, not as a sphere, but as a jagged maw ringed with teeth of ice. The town below froze—literally. Cars stalled mid-street. Birds dropped like stones. People collapsed, frost blooming across their skin.
+
+Vergil raised the blade, its edge glowing faintly. “Fight it, Namami!”
+
+She floated above the chapel, the crown searing into her skull. “She’s gone,” the entity laughed. “But you… you’ll make a fine replacement.”
+
+Felix tackled Vergil as a bolt of black light struck where he’d stood. “We need the pendant! The journal said—”
+
+“—it’s a key, not a weapon!” Vergil snapped.
+
+“Wrong,” the entity crooned. “It’s a cage.”
+
+The pendant heated, the sigil burning into Vergil’s palm. Dadi’s voice echoed, clear and sharp:
+
+“Break the crown. Break the cycle.”
+
+**Chapter 31: The Crown’s Whisper**
+
+Namami, now a conduit for the Black Moon, hovers above the frozen town. Vergil and Felix retreat to the chapel, where the journal reveals a final entry: “The Gatekeeper’s blood is the key—and the lock.” Felix’s hands tremble as he admits, “My family… we were supposed to steal the crown. But I didn’t know—”
+
+“You knew enough,” Vergil snaps. The pendant burns, showing visions of a masked figure—the First Gatekeeper—raising the blade not against the Moon, but with it.
+
+**Chapter 32: The First Gatekeeper’s Sin**
+
+A flashback to 1912: The First Gatekeeper, Kael, betrays the Moon, a celestial guardian that once balanced life and death. Greedy for immortality, Kael severs their bond, trapping the Moon’s essence in the relics. The Moon, fractured, becomes the Black Moon—a vengeful shadow.
+
+In the present, Vergil realizes: “We’re not fighting a monster. We’re fighting a prisoner.”
+
+**Chapter 33: Allahrakha’s Return**
+
+Allahrakha materializes as a wraith, his body half-consumed by ice. “The Moon isn’t evil—it’s broken,” he rasps. “You have to reunite the relics. Let it heal.”
+
+Namami’s voice pierces Vergil’s mind: “The crown… it’s showing me memories. Your memories.”
+
+**Chapter 34: Felix’s Betrayal**
+
+Felix seizes the pendant, eyes glinting. “Why save a world that hates us? The Moon’s power could be ours.” He activates the relic, creating a shield of black light. Vergil, unarmed, faces him—until Ichiyoru pounces, clawing Felix’s face. The cat’s eyes flash blue: Dadi’s spirit.
+
+**Chapter 35: The Trinity of Relics**
+
+Vergil reclaims the blade and pendant, while Namami wrests the crown from her head. Bloodied, she gasps, “The relics… they’re pieces of the Moon’s heart.”
+
+The trio converges at the valley’s epicenter. Vergil plunges the blade into the ground, the pendant and crown slotting into its hilt. The earth splits, revealing a pulsing, silver core—the Moon’s true form.
+
+**Chapter 36: The Moon’s Plea**
+
+The core whispers: “Free me.” Vergil hesitates—until visions flood his mind: cities blooming under a blue moon, life thriving without decay. “This is what I guarded… before Kael’s betrayal.”
+
+Namami urges, “Do it.”
+
+**Chapter 37: The Unseen Price**
+
+Vergil shatters the relics. Light erupts, erasing the Black Moon. But the ground quakes, reality unraveling. Allahrakha shouts, “The relics stabilized the world! Without them—”
+
+“—we make a new balance,” Vergil interrupts. He steps into the light.
+
+**Chapter 38: The Merge**
+
+Vergil’s body disintegrates, his essence merging with the Moon’s core. The sky shifts—black to blue, ice to warmth. Namami and Felix watch as the new moon forms, its surface swirling with Vergil’s face.
+
+“I’m not a jailer anymore,” his voice echoes. “I’m a bridge.”
+
+**Chapter 39: The Forgotten World**
+
+The town revives, memories of the Black Moon erased. Namami alone remembers. She finds Ichiyoru—now ordinary—and a note in Vergil’s handwriting: “The balance is yours to keep.”
+
+At night, the blue moon glows, and in its light, shadows dance peacefully.
+
+**Chapter 40: The Unbelievable Truth**
+
+Years later, Namami visits the valley. The shrine is gone, replaced by a meadow. A boy with Vergil’s eyes plays there, humming a tune from Dadi’s phone. He smiles at her. “You see it too, don’t you? The moon’s stories.”
+
+She realizes: Vergil didn’t die. He became time—a cycle of guardianship, reborn endlessly. The true enemy was never the Moon, but the fear of change.
+
+**Epilogue: The Blue Moon’s Guardian**
+The boy grows, unaware of his legacy. On his 18th birthday, he finds a blade in the attic—its edge glowing blue. Above, the moon shines, winking.
+
+“Ready?” it seems to ask.
+
+He grins. “Always.”
+
+End.
