@@ -19,9 +19,8 @@ I'm writing this entry a bit late today. We finally got a lead on the Miller cas
 Monday<br>
 13th of July, 2007<br>
 
-I remember it. I remember it all now. I can't write any of this down, but oh how I wish I could. How I wish I could prevent all of this. It's like a terrible joke. A punchline to some horrible godless comedy, and all I can do is laugh. To laugh and watch as it all unfo
+I remember it. I remember it all now. I can't write any of this down, but oh how I wish I could. It's like a terrible joke. A punchline to some horrible godless comedy, and all I can do is laugh. If only I could live in this bliss of ignorance just a little while longer. Oh well, I deserve this, don't I? The blood on my hands is simply too much to overlook. This is it. This is how it ends. As Elliot said, not with a bang, but with a whimper.
 
 
 
 <br><br><br><br>
-
