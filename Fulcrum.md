@@ -19,8 +19,9 @@ I'm writing this entry a bit late today. We finally got a lead on the Miller cas
 Monday<br>
 13th of July, 2007<br>
 
-I remember it. I remember it all now. I can't write any of this down. It'd be too much of a risk. It's like a terrible joke. A punchline to some horrible godless comedy, and all I can do is laugh. If only I could live in this bliss of ignorance just a little while longer. Oh well, I deserve this, don't I? The blood on my hands is simply too much to overlook. This is it. This is how it ends.
+I remember it. I remember it all now. I can't write any of this down. It'd be too much of a risk. It's like a terrible joke. A punchline to some horrible godless comedy, and all I can do is laugh. If only I could live in this bliss of ignorance just a little while longer. If only I could go back and change it all. Oh well, I deserve this, don't I? The blood on my hands is simply too much to overlook. This is it. This is how it ends.
 
 
 
 <br><br><br><br>
+It's really strange. All of it. I swear that there was a corridor here right where this wall is. I saw it. I am not crazy. There was a man in the corridor. He talked to me. I still remember his voice. 
