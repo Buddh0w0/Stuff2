@@ -19,7 +19,7 @@ I'm writing this entry a bit late today. We finally got a lead on the Miller cas
 Monday
 13th of July, 2027<br>
 
-I remember it. I remember it all now. I can't write any of this, but oh how I wish I could. How I wish I could prevent all of this. It's like a terrible joke. A punchline to some horrible godless comedy, and all I can do is laugh. To laugh and watch as it all unfo
+I remember it. I remember it all now. I can't write any of this down, but oh how I wish I could. How I wish I could prevent all of this. It's like a terrible joke. A punchline to some horrible godless comedy, and all I can do is laugh. To laugh and watch as it all unfo
 
 
 
