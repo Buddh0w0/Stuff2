@@ -7,14 +7,14 @@ Today I woke up with both my nostrils clear for a change. The anti-allergy medic
 
 
 
-<br><br><br>
+<br><br>
 Monday
 4th of May, 2020<br>
 
 I'm writing this entry a bit late today. We finally got a lead on the Miller case, and I have been working non-stop day and night. As excited as I am, it certainly is taking a toll on my body and mind. I need to take some rest. I'm losing track of time. Like seriously, how is it past 12 AM already? I swear there is some sort of sorcery going on here. Also, I found a photo album of my childhood pictures in my bookshelf beneath a heap of files. How did that get there? I thought I had lost it a long time ago. I really need to take some rest now. I can barely keep my eyes open.
 
 
-<br><br><br>
+<br><br>
 Monday
 13th of July, 2020
 
